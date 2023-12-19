@@ -1,4 +1,5 @@
-<img src="https://mail.google.com/mail/u/0?ui=2&ik=ed0ce3acc0&attid=0.1&permmsgid=msg-a:r3141420540830626320&th=18c7cbda1869e7d6&view=att&disp=safe&realattid=18c7cbd91cdd20d78c31"
+<img src= ![IMG-20231116-WA0007 (1)](https://github.com/Joseanto27/Joseanto27.github.io/assets/153719350/3d3fb257-7596-4799-9f08-676607a27da4)
+
 
 # **José Antonio Pineda Fernández**
 ## Objetivo Profesional
