@@ -1,5 +1,4 @@
-<img src= ![IMG-20231116-WA0007 (1)](https://github.com/Joseanto27/Joseanto27.github.io/assets/153719350/3d3fb257-7596-4799-9f08-676607a27da4)
-
+<img src="https://github.com/Joseanto27/Joseanto27.github.io/blob/main/IMG-20231116-WA0007%20(1).jpg" width="200">
 
 # **José Antonio Pineda Fernández**
 ## Objetivo Profesional
